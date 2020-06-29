@@ -15,3 +15,11 @@ Bekannt ist sie vor allem für ihre Bücher über den Tarot. Sie gilt in Tarot-K
     * A Guide for and About Lesbian, Gay, and Bisexual Teens
 * Im Körper der Göttin. 
     * Weibliche Weisheit in Mythos, Landschaft und Kultur
+    
+### Zitate von Rachel Pollack
+
+> To learn to play seriously is one of the great secrets of spiritual exploration.
+
+> Was bringt die Sonne zum Scheinen? Brennende Elemente, ja, aber was bringt diese dazu, zu brennen? 
+
+> Bevor wir es nicht gelernt haben, uns völlig auf die äußere Welt einzulassen, können wir uns keine Hoffnung machen, sie zu transzendieren. 
